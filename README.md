@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lance
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate or part time jobs that is suitable for me
+- 📫 you can reach me through email: lancerson49@gmail.com
